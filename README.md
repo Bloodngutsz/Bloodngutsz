@@ -2,8 +2,8 @@
 <p align="center">𐂯  <a href="https://github.com/Welcome2Paradise">my miles</a>  𐂯
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Screenshot_2026-03-14_100001-removebg-preview.webp" width="150" />
 <p align="center"> "ʸᵒᵘ ᵐᵘˢᵗ ᵇᵉ ᵉˣʰᵃᵘˢᵗᵉᵈ. ˡᵉᵗˢ ᵗᵃᵏᵉ ᵃ ᵇʳᵉᵃᵏ, ʰᵘʰ ᵇᵘᵈᵈʸ?" </a><p align="center"> ꒷꒦✧˖°🫀⋆｡𖦹꒷꒦
-
-
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/download.gif" width="320" />
+<p align="center"> ˗ˏˋ ꒰ ♡ ꒱ ˎˊ˗
 <!--
 **Maddsszz/maddsszz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
