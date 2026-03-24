@@ -1,5 +1,5 @@
-<p align="center">─── ⋆⋅ ♰ ⋅⋆ ─── 
-<p align="center">𐂯  <a href="https://github.com/Welcome2Paradise">my miles</a>  𐂯
+<p align="center"୧ ‧₊˚ 🥩🦴 ⋅
+<p align="center"> <a href="https://maddywaddyy.atabook.org/">αƚα!!</a> 
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled62_20260323192907.png" width="320" />
 <p align="center"> "ʸᵒᵘ ᵐᵘˢᵗ ᵇᵉ ᵉˣʰᵃᵘˢᵗᵉᵈ. ˡᵉᵗˢ ᵗᵃᵏᵉ ᵃ ᵇʳᵉᵃᵏ, ʰᵘʰ ᵇᵘᵈᵈʸ?" </a><p align="center"> ꒷꒦✧˖°🫀⋆｡𖦹꒷꒦
 <p align="center">
