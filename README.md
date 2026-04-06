@@ -1,3 +1,6 @@
+<h6 align="center">
+
+![profileviews](https://komarev.com/ghpvc/?username=Bloodngutsz&color=orange)
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_b5ac183864be48aa413fdba4e570b0c9_a87c2dd8_1280.png" width="650" />
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled80_20260404211915.png" width="30" />
 <p align="center"> <a href="https://maddywaddyy.atabook.org/">𝙖𝙩𝙖 ,,!</a>   </a><a href="https://github.com/KaliIsLost">𝙈𝙮 𝙗𝙚𝙡𝙖 . 
