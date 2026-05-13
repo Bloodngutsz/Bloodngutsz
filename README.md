@@ -15,5 +15,5 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ukqd7jdhazegocbfifls5mmvdu&cover_image=true&theme=novatorem&show_offline=false&background_color=d36464&interchange=false&profanity=false&bar_color=c8acac&bar_color_cover=false">
   </a>
 </p>
-  <p align="center"> <a href="https://github.com/BaphometAngel">𝙖𝙡𝙩,, !
+  <p align="center"> <a href="https://github.com/BaphometAngel">𝘢𝘭𝘵 .
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_5242415fc369f0bc613db190ba269726_19c449e8_400.png" width="600" />
