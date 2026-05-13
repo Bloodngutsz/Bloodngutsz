@@ -16,4 +16,4 @@
   </a>
 </p>
   <p align="center"> <a href="https://github.com/BaphometAngel">𝙖𝙡𝙩,, !
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_819db106f177fec21dd04ac42ae6496c_56e92c84_250.png" width="300" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_5242415fc369f0bc613db190ba269726_19c449e8_400.png" width="600" />
