@@ -7,7 +7,7 @@
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled79_20260404210520.png" width="320" />
 <p align="center">
 <p align="center"> ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐♡
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_7c5d59d2f46d33df9ce13b84c2063730_94569288_400.webp" width="400" />    
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_a67470cfadfbde1653d9d1d365c070f9_277fa3f1_400.webp" width="400" />    
 <p align="center"> (๑ᵔ⤙ᵔ๑) 𝐛𝐞𝐥𝐚 𝐚𝐧𝐝 𝐯𝐢𝐜𝐭𝐨𝐫 𝐤𝐬𝐬𝐫 ❤︎
 <p align="center">
 <p align="center">
