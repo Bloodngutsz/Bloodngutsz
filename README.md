@@ -1,8 +1,8 @@
 <h6 align="center">
 
 ![profileviews](https://komarev.com/ghpvc/?username=Bloodngutsz&color=red)
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_b5ac183864be48aa413fdba4e570b0c9_a87c2dd8_1280.png" width="650" />
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled80_20260404211915.png" width="30" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_3bc537c96442e4dbf41e0eb7a31e03cc_4c65025c_250.png" width="300" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_195c1984c9739208852007c51ddaac31_1bffa8cd_250.png" width="50" />
 <p align="center"> <a href="https://maddywaddyy.atabook.org/">𝙖𝙩𝙖 ,,!</a>   </a><a href="https://github.com/KaliIsLost">𝙈𝙮 𝙗𝙚𝙡𝙖 .  <a href="https://graceysite.straw.page">𝗦𝘁𝗿𝗮𝘄 .!</a>  
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled79_20260404210520.png" width="320" />
 <p align="center">
@@ -16,4 +16,4 @@
   </a>
 </p>
   <p align="center"> <a href="https://github.com/BaphometAngel">𝙖𝙡𝙩,, !
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_b5ac183864be48aa413fdba4e570b0c9_a87c2dd8_1280.png" width="650" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_819db106f177fec21dd04ac42ae6496c_56e92c84_250.png" width="300" />
