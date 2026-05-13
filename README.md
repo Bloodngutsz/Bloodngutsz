@@ -5,10 +5,9 @@
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_195c1984c9739208852007c51ddaac31_1bffa8cd_250.png" width="50" />
 <p align="center"> <a href="https://maddywaddyy.atabook.org/">𝘢𝘵𝘢 .</a>   </a><a href="https://github.com/KaliIsLost">𝘮𝘺 𝘱𝘶𝘱 .  <a href="https://graceysite.straw.page">𝘴𝘵𝘳𝘢𝘸 . ,</a>  
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled79_20260404210520.png" width="320" />
-<p align="center">
-<p align="center"> ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐♡
+<p align="center">𝘩𝘦𝘪𝘴𝘦𝘯𝘣𝘦𝘳𝘨 𝘧𝘢𝘯𝘢𝘵𝘪𝘤 .
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_a67470cfadfbde1653d9d1d365c070f9_277fa3f1_400.webp" width="400" />    
-<p align="center"> (๑ᵔ⤙ᵔ๑) 𝐛𝐞𝐥𝐚 𝐚𝐧𝐝 𝐯𝐢𝐜𝐭𝐨𝐫 𝐤𝐬𝐬𝐫 ❤︎
+<p align="center"> 
 <p align="center">
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
