@@ -1,6 +1,6 @@
 <h6 align="center">
 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_5242415fc369f0bc613db190ba269726_19c449e8_400.png" width="600" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_ef25be8265b37273a13689eccb8e8277_78c16104_540.webp" width="600" />
 
   ![profileviews](https://komarev.com/ghpvc/?username=Bloodngutsz&color=red)
 
