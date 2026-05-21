@@ -9,7 +9,7 @@
 <p align="center"> <a href="https://maddywaddyy.atabook.org/">𝘢𝘵𝘢 .</a>   </a><a href="https://github.com/KaliIsLost">𝘮𝘺 𝘭𝘰𝘷𝘦𝘭𝘺 . ,  <a href="https://graceysite.straw.page">𝘴𝘵𝘳𝘢𝘸 . ,</a>  
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled195_20260521153008.png" width="320" />
 <p align="center">────୨ৎ────
-<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_a67470cfadfbde1653d9d1d365c070f9_277fa3f1_400.webp" width="400" />    
+<p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_b64c32d638fd36746a49a4a73a789f4c_4659936a_400.webp" width="400" />    
 <p align="center"> 
 <p align="center">
 <p align="center">
