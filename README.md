@@ -18,4 +18,4 @@
   </a>
 </p>
   <p align="center"> <a href="https://github.com/BaphometAngel">𝘢𝘭𝘵 .
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_5242415fc369f0bc613db190ba269726_19c449e8_400.png" width="600" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_064b73869992503265020edf710e7809_01d69f46_1280.png" width="600" />
