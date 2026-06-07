@@ -17,5 +17,5 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ukqd7jdhazegocbfifls5mmvdu&cover_image=true&theme=novatorem&show_offline=false&background_color=d36464&interchange=false&profanity=false&bar_color=c8acac&bar_color_cover=false">
   </a>
 </p>
-  <p align="center"> <a href="https://github.com/BaphometAngel">𝘢𝘭𝘵 .
+  <p align="center"> <a href="https://github.com/BaphometAngel">𝘢𝘭𝘵 . </a><a href="https://pronouns.cc/@Bloodngutszz">𝘮𝘺 𝘱𝘳𝘯𝘴.❤︎
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_064b73869992503265020edf710e7809_01d69f46_1280.png" width="600" />
