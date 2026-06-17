@@ -2,7 +2,7 @@
 
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_ef25be8265b37273a13689eccb8e8277_78c16104_540.webp" width="600" />
 
-  ![profileviews](https://komarev.com/ghpvc/?username=Bloodngutsz&color=red)
+  ![profileviews](https://komarev.com/ghpvc/?username=Bloodngutsz&color=blue)
 
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled197_20260521163546.png" width="300" />
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled293_20260616171755.png" width="100" />
