@@ -5,7 +5,7 @@
   ![profileviews](https://komarev.com/ghpvc/?username=Bloodngutsz&color=red)
 
 <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled197_20260521163546.png" width="300" />
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/tumblr_b21433f0ca37b5841ba87887759d3e22_4b1a975a_250.png" width="50" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled293_20260616171755.png" width="100" />
 <p align="center"> <a href="https://maddywaddyy.atabook.org">𝘮𝘪 𝘢𝘵𝘢 ,, . </a><a href="https://github.com/KaliIsLost">𝘮𝘺 𝘭𝘰𝘷𝘦𝘭𝘺 . ,  <a href="https://graceysite.straw.page">𝘴𝘵𝘳𝘢𝘸 . ,</a>  
 <p align="center"> <img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled195_20260521153008.png" width="320" />
 <p align="center">୧ ‧₊˚ 🥩🦴 ⋅
