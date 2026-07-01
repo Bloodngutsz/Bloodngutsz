@@ -25,4 +25,4 @@
 <p align="center"> <a href="https://maddywaddyy.atabook.org">            ╰┈➤ 𝗺𝗶 𝗮𝘁𝗮 .  </a><a href="https://github.com/KaliIsLost">           𝗺𝘆 𝗹𝗼𝘃𝗲𝗿 ⋆˙⟡  <a href="https://graceysite.straw.page">                𝗺𝘆 𝘀𝘁𝗿𝗮𝘄 (𝗿𝗲𝗱𝗼𝗶𝗻𝗴 𝘀𝗼𝗼𝗻..) ⋮</a><a href="https://pronouns.cc/@Bloodngutszz">𝗺𝘆 𝗽𝗿𝗻𝘀.❤︎
 </a>   
 
-  <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled371_20260627235555.png" width="100" />
+  <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled391_20260701104153.png" width="100" />
