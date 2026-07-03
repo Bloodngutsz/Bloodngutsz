@@ -20,7 +20,7 @@
 </p>
 
 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled392_20260701104302.png" width="400" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled398_20260702191543.png" width="550" />
 
 <p align="center"> <a href="https://maddywaddyy.atabook.org">            ╰┈➤ 𝗺𝗶 𝗮𝘁𝗮 .  </a><a href="https://github.com/KaliIsLost">           𝗺𝘆 𝗹𝗼𝘃𝗲𝗿 ⋆˙⟡  <a href="https://graceysite.straw.page">                𝗺𝘆 𝘀𝘁𝗿𝗮𝘄 (𝗿𝗲𝗱𝗼𝗶𝗻𝗴 𝘀𝗼𝗼𝗻..) ⋮</a><a href="https://pronouns.cc/@Bloodngutszz">𝗺𝘆 𝗽𝗿𝗻𝘀.❤︎
 </a>   
