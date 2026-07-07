@@ -4,11 +4,8 @@
 
 
 
-  
-  ⊹ ࣪ ˖ ໒꒱![profileviews](https://komarev.com/ghpvc/?username=Bloodngutsz&color=grey)⊹ ࣪ ˖ ໒꒱
 
-
-   <p align="center">𝘄𝗵𝗮𝘁 𝗶𝗺 𝗹𝗶𝘀𝘁𝗲𝗻𝗶𝗻𝗴 𝘁𝗼 ! ⤵︎
+   <p align="center">$\color{#c42f79}{\textsf{what im listening 2 ⤵︎ }}$
 
 
   <p align="center"> 
@@ -25,4 +22,15 @@
 <p align="center"> <a href="https://maddywaddyy.atabook.org">            ╰┈➤ 𝗺𝗶 𝗮𝘁𝗮 .  </a><a href="https://github.com/KaliIsLost">           𝗺𝘆 𝗹𝗼𝘃𝗲𝗿 ⋆˙⟡  <a href="https://graceysite.straw.page">                𝗺𝘆 𝘀𝘁𝗿𝗮𝘄 (𝗿𝗲𝗱𝗼𝗶𝗻𝗴 𝘀𝗼𝗼𝗻..) ⋮</a><a href="https://pronouns.cc/@Bloodngutszz">𝗺𝘆 𝗽𝗿𝗻𝘀.❤︎
 </a>   
 
-  <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled446_20260707125710.png" width="100" />
+
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled446_20260707125710.png" width="100" />
+
+<h6 align="center">
+
+
+  <p align="center">$\color{#c42f79}{\textsf{"kidnap you..? i liberated youuuu.."}}$
+
+
+
+
+
