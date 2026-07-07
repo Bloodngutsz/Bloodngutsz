@@ -5,7 +5,7 @@
 
 
   
-  ☆⊹ ࣪ ˖![profileviews](https://komarev.com/ghpvc/?username=Bloodngutsz&color=grey)⊹ ࣪ ˖☆
+  ⊹ ࣪ ˖ ໒꒱![profileviews](https://komarev.com/ghpvc/?username=Bloodngutsz&color=grey)⊹ ࣪ ˖ ໒꒱
 
 
    <p align="center">𝘄𝗵𝗮𝘁 𝗶𝗺 𝗹𝗶𝘀𝘁𝗲𝗻𝗶𝗻𝗴 𝘁𝗼 ! ⤵︎
