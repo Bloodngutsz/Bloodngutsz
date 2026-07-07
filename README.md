@@ -1,11 +1,11 @@
 <h6 align="center">
 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled393_20260701104501.png" width="55" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled444_20260707125604.png" width="55" />
 
 
 
   
-  ☆⊹ ࣪ ˖![profileviews](https://komarev.com/ghpvc/?username=Bloodngutsz&color=red)⊹ ࣪ ˖☆
+  ☆⊹ ࣪ ˖![profileviews](https://komarev.com/ghpvc/?username=Bloodngutsz&color=grey)⊹ ࣪ ˖☆
 
 
    <p align="center">𝘄𝗵𝗮𝘁 𝗶𝗺 𝗹𝗶𝘀𝘁𝗲𝗻𝗶𝗻𝗴 𝘁𝗼 ! ⤵︎
@@ -20,9 +20,9 @@
 </p>
 
 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled398_20260702191543.png" width="550" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled443_20260707125511.png" width="550" />
 
 <p align="center"> <a href="https://maddywaddyy.atabook.org">            ╰┈➤ 𝗺𝗶 𝗮𝘁𝗮 .  </a><a href="https://github.com/KaliIsLost">           𝗺𝘆 𝗹𝗼𝘃𝗲𝗿 ⋆˙⟡  <a href="https://graceysite.straw.page">                𝗺𝘆 𝘀𝘁𝗿𝗮𝘄 (𝗿𝗲𝗱𝗼𝗶𝗻𝗴 𝘀𝗼𝗼𝗻..) ⋮</a><a href="https://pronouns.cc/@Bloodngutszz">𝗺𝘆 𝗽𝗿𝗻𝘀.❤︎
 </a>   
 
-  <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled391_20260701104153.png" width="100" />
+  <p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled446_20260707125710.png" width="100" />
