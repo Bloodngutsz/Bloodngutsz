@@ -28,7 +28,7 @@
 <h6 align="center">
 
 
-  <p align="center">$\color{#5a4b4b}{\textsf{"kidnap you..? i liberated youuuu.."}}$
+  <p align="center">$\color{#5a4b4b}{\textsf{⋮ "i know, thats why i dont leave."◞}}$
 
 
 
