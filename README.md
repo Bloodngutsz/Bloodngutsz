@@ -1,11 +1,11 @@
 <h6 align="center">
 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled444_20260707125604.png" width="55" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled449_20260714114858.png" width="55" />
 
 
 
 
-   <p align="center">$\color{#c42f79}{\textsf{what im listening 2 ⤵︎ }}$
+   <p align="center">$\color{#5a4b4b}{\textsf{what im listening 2 ⤵︎ }}$
 
 
   <p align="center"> 
@@ -17,7 +17,7 @@
 </p>
 
 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled443_20260707125511.png" width="550" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled448_20260714114824.png" width="550" />
 
 <p align="center"> <a href="https://maddywaddyy.atabook.org">            ╰┈➤ 𝗺𝗶 𝗮𝘁𝗮 .  </a><a href="https://github.com/KaliIsLost">           𝗺𝘆 𝗹𝗼𝘃𝗲𝗿 ⋆˙⟡  <a href="https://graceysite.straw.page">                𝗺𝘆 𝘀𝘁𝗿𝗮𝘄 (𝗿𝗲𝗱𝗼𝗶𝗻𝗴 𝘀𝗼𝗼𝗻..) ⋮</a><a href="https://pronouns.cc/@Bloodngutszz">𝗺𝘆 𝗽𝗿𝗻𝘀.❤︎
 </a>   
@@ -28,7 +28,7 @@
 <h6 align="center">
 
 
-  <p align="center">$\color{#c42f79}{\textsf{"kidnap you..? i liberated youuuu.."}}$
+  <p align="center">$\color{#5a4b4b}{\textsf{"kidnap you..? i liberated youuuu.."}}$
 
 
 
