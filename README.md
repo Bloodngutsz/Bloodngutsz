@@ -1,6 +1,6 @@
 <h6 align="center">
 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled449_20260714114858.png" width="55" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled482_20260719194522.png" width="55" />
 
 
 
@@ -17,13 +17,13 @@
 </p>
 
 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled448_20260714114824.png" width="550" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled481_20260719194430.png" width="550" />
 
 <p align="center"> <a href="https://maddywaddyy.atabook.org">            ╰┈➤ 𝗺𝗶 𝗮𝘁𝗮 .  </a><a href="https://github.com/KaliIsLost">           𝗺𝘆 𝗹𝗼𝘃𝗲𝗿 .ᐟ.ᐟ <a href="https://theknockerwantsyou.straw.page">                𝗺𝘆 𝘀𝘁𝗿𝗮𝘄  ⋮</a><a href="https://pronouns.cc/@Bloodngutszz">𝗺𝘆 𝗽𝗿𝗻𝘀.❤︎
 </a>   
 
 
-<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled451_20260714121917.png" width="100" />
+<p align="center"><img src="https://file.garden/aWQNv4rA4UhVT0mX/Untitled479_20260719194312.png" width="100" />
 
 <h6 align="center">
 
