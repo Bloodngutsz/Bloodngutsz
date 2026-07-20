@@ -28,7 +28,7 @@
 <h6 align="center">
 
 
-  <p align="center">$\color{#194425}{\textsf{⋮ "i know, thats why i dont leave."◞}}$
+  <p align="center">$\color{#194425}{\textsf{⋮ "see you later, pumpkin."◞}}$
 
 
 
